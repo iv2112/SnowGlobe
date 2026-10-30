@@ -1,0 +1,1 @@
+This website is simple yet important. It is for those small moments of doubts, for those voice in our heads which tell us we're not good enough, and for all the times when we feel low and depressed. Sometimes, all it takes to make someone's day better are a few yet meaningful words.
